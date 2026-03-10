@@ -1,0 +1,1 @@
+This is a March 10 2026 versin Claude  (YSA) West Salem self storage facility feasibility analysis Netfy Y that  named "Westsalem dualasset 2026"  Shows the self storage and the additional property value
